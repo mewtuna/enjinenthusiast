@@ -24,7 +24,7 @@
   </table>
 </div>
 
-<img src=https://file.garden/afQV576BCSYbxNnD/tumblr_ee31113848ab7aeceec2064dc5227650_46752e3f_1280.png width=420 align=right>
+<img src=https://file.garden/afQV576BCSYbxNnD/tumblr_ee31113848ab7aeceec2064dc5227650_46752e3f_1280.png width=200 align=right>
 
 
 <div align=center>
