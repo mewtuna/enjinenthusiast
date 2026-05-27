@@ -10,7 +10,7 @@
 <div align=center>
   
 ![](https://komarev.com/ghpvc/?username=mewtuna&color=e1725d&style=for-the-badge&base=5755&label=ʚ+Team+Akuta+ɞ) <br>
-<img src=https://file.garden/afQV576BCSYbxNnD/tumblr_59a96d990672229fedfdc795f7ee9f29_d6dabb7b_640.webp width=250>
+<img src=https://file.garden/afQV576BCSYbxNnD/tumblr_59a96d990672229fedfdc795f7ee9f29_d6dabb7b_640.webp width=300>
 <br>
   <table>
     <tr>
