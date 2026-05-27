@@ -30,6 +30,8 @@
 <div align=center>
   <img src=https://file.garden/afQV576BCSYbxNnD/tumblr_c97121b16f8109cb22493adbcfb324ae_42ec703e_1280.png>
   
+  $${\color{#e1d0b9}𓏵‧₊˚ ᛝ}$$  [ata](https://pinkbxtch.atabook.org/) $${\color{#e1d0b9}⋆}$$ [rentry](https://rentry.co/ryu_suu) $${\color{#e1d0b9}⋆}$$ [carrd](https://chih1ro.carrd.co) $${\color{#e1d0b9}⋆}$$ [guns](https://guns.lol/mewtuna) $${\color{#e1d0b9}┊}$$
+  
   <img src=https://file.garden/afQV576BCSYbxNnD/tumblr_a032eeaef2f890cb2059fd44c0e7ae09_e440326f_400.jpg width=500>
   <img src=https://file.garden/afQV576BCSYbxNnD/tumblr_05f4a100392b8a32c6e795d7bdb34347_380195ca_2048.jpg?v>
   
