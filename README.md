@@ -16,7 +16,7 @@
     <tr>
       <td>
         <br>
- ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎  $${\color{#e1d0b9}✦ \space \color {#e1725d}•┈\color{#e1d0b9}๑\color{#e1725d}⋅⋯ ⋯⋅\color{#e1d0b9}๑\color{#e1725d}┈• \space \color {#e1d0b9}✦}$$ <br> $${\color{#e1725d}୭˚. ᵎᵎ \space \color{#e1d0b9}Claudia/Rei \space \color {#e1725d}ʚ\spaceɞ \space \color{#e1d0b9}He/She/They}$$ <br> ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ $${\color{#e1725d}Credits \space \color {#e1d0b9}/ \space \color {#e1725d}Links \space are \space below \space \color {#e1d0b9}!}$$
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎  $${\color{#e1d0b9}✦ \space \color {#e1725d}•┈\color{#e1d0b9}๑\color{#e1725d}⋅⋯ ⋯⋅\color{#e1d0b9}๑\color{#e1725d}┈• \space \color {#e1d0b9}✦}$$ <br> $${\color{#e1725d}୭˚. ᵎᵎ \space \color{#e1d0b9}Ccina/Rei \space \color {#e1725d}ʚ\spaceɞ \space \color{#e1d0b9}He/She/They}$$ <br> ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ $${\color{#e1725d}Credits \space \color {#e1d0b9}/ \space \color {#e1725d}Links \space are \space below \space \color {#e1d0b9}!}$$
         <br>
          <br>
       </td>
